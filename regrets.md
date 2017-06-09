@@ -38,7 +38,7 @@ If I die today, I’ll most likely regret that I have **not** done the following
 - Starting my own company
 - Writing about the work that I do with regularity
 - Travelling to all 7+ continents
-- Visitng every US state, at least once
+- Visiting every US state, at least once
 - Taking more time off of work
 - Learning the basics of scuba diving
 - Staying lower on my learning curve, and continuously focusing on reinvention
